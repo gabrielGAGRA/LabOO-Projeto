@@ -28,3 +28,5 @@ David Satoshi Aguina - 12552408
 Gabriel Soares da Silva - 11808234
 
 Maria Eduarda Dantas Leite Pessôa - 15587775
+
+Mateus Silva de Araújo - 15497076
